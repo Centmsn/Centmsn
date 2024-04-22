@@ -1,4 +1,4 @@
-[![GitHub banner](https://github.com/Centmsn/Centmsn/assets/65851661/d779aef9-4c0d-4813-b809-9997a0b83976)](https://www.4spacje.pl)
+![linkedin-w-tle-firma](https://github.com/Centmsn/Centmsn/assets/65851661/1ab0e6a2-c9f9-4d4d-9818-7ef4fb5db88c)
 
 ## Greetings,
 
